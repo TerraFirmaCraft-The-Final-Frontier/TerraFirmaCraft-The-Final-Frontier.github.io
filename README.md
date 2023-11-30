@@ -1,1 +1,0 @@
-# Effective Immediately. This project has been put on hiatus for an undefined amount of time. Should any new information arise regarding its development or release. It will be announced on this site only.
